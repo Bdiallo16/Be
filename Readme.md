@@ -1,1 +1,1 @@
-To get database please send me  a mail.
+For database please send me  a mail.
